@@ -612,6 +612,7 @@
 🔖 [Delesing](https://delesign.com/free-designs/graphics/) <br>
 🔖 [Pixeltru](https://www.pixeltrue.com/free-illustrations/) <br>
 🔖 [Iconscout](https://iconscout.com/) <br>
+🔖 [Http Status Dog](https://httpstatusdogs.com/) <br>
 
 ## 📚 Sites de icones
 
